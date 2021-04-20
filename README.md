@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @Sotatek-KhangTrinh\
+- 👋 Hi, I’m @Sotatek-KhangTrinh
